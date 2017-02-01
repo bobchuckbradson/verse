@@ -1,0 +1,21 @@
+#Self Conscious
+
+Well I’m pretty self conscious when it comes to my toes
+And I’ve got a little scar underneath my nose
+Everybody’s got a blemish, too I suppose
+Something that they don’t want to expose
+
+Have a habit have to stare in everybody’s eyes
+Maybe I’m just looking for a hole in their disguise
+Paranoia escalates while society dies
+Truth is just a convergence of lies
+
+Careful not to show my hand before you ante in
+Been fucked over several times I won’t get fooled again
+Keep my cards close to my chest to shield a broken heart
+Never need to end what you don’t start
+
+Thought I had a reason for each of my mistakes
+But laziness and boredom does not a motive make
+Thought I had an alibi for avoiding any vows
+Owner of a heart so lonely, now
